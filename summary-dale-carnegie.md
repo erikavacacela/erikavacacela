@@ -7,13 +7,14 @@
 - [Regla 1. No critique, no condene, ni se queje](#regla-1-no-critique-no-condene-ni-se-queje)
 - [Regla 2. Demuestre aprecio honrado y sincero](#regla-2-demuestre-aprecio-honrado-y-sincero)
 - [Regla 3. Despierte en los demás un deseo vehemente](#regla-3-despierte-en-los-demás-un-deseo-vehemente)
+
 [Segunda parte. Seis maneras de agradar a los demás](#segunda-parte-seis-maneras-de-agradar-a-los-demás)
 - [Regla 1. Interésese sinceramente por los demás](#regla-1-interésese-sinceramente-por-los-demás)
 - [Regla 2. Sonría](#regla-2-sonría)
 - [Regla 3. Recuerde que para toda persona, su nombre es el sonido más dulce e importante en cualquier idioma](#regla-3-recuerde-que-para-toda-persona-su-nombre-es-el-sonido-más-dulce-e-importante-en-cualquier-idioma)
 - [Regla 4. Sea un buen oyente. Anime a los demás a que hablen de sí mismos](#regla-4-sea-un-buen-oyente-anime-a-los-demás-a-que-hablen-de-sí-mismos)
 - [Regla 5. Hable siempre de lo que interese a los demás](#regla-5-hable-siempre-de-lo-que-interese-a-los-demás)
-- [Regla 6. Haga que la otra persona se sienta importante y hágalo sincerament](REGLA 6. Haga que la otra persona se sienta importante y hágalo sincerament)
+- [Regla 6. Haga que la otra persona se sienta importante y hágalo sincerament](#regla-6-haga-que-la-otra-persona-se-sienta-importante-y-hágalo-sinceramente)
 
 
 ## Primera parte. Técnicas fundamentales para tratar con el prójimo.
