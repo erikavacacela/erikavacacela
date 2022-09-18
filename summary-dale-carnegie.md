@@ -7,6 +7,13 @@
 - [Regla 1. No critique, no condene, ni se queje](#regla-1-no-critique-no-condene-ni-se-queje)
 - [Regla 2. Demuestre aprecio honrado y sincero](#regla-2-demuestre-aprecio-honrado-y-sincero)
 - [Regla 3. Despierte en los demás un deseo vehemente](#regla-3-despierte-en-los-demás-un-deseo-vehemente)
+[Segunda parte. Seis maneras de agradar a los demás](#segunda-parte-seis-maneras-de-agradar-a-los-demás)
+- [Regla 1. Interésese sinceramente por los demás](#regla-1-interésese-sinceramente-por-los-demás)
+- [Regla 2. Sonría](#regla-2-sonría)
+- [Regla 3. Recuerde que para toda persona, su nombre es el sonido más dulce e importante en cualquier idioma](#regla-3-recuerde-que-para-toda-persona-su-nombre-es-el-sonido-más-dulce-e-importante-en-cualquier-idioma)
+- [Regla 4. Sea un buen oyente. Anime a los demás a que hablen de sí mismos](#regla-4-sea-un-buen-oyente-anime-a-los-demás-a-que-hablen-de-sí-mismos)
+- [Regla 5. Hable siempre de lo que interese a los demás](#regla-5-hable-siempre-de-lo-que-interese-a-los-demás)
+- [Regla 6. Haga que la otra persona se sienta importante y hágalo sincerament](REGLA 6. Haga que la otra persona se sienta importante y hágalo sincerament)
 
 
 ## Primera parte. Técnicas fundamentales para tratar con el prójimo.
@@ -114,7 +121,7 @@ que haga algo en detrimento de sus propios intereses. Ambos partidos deben salir
 ## Segunda parte. Seis maneras de agradar a los demás.
 
 
-### REGLA 1. Interésese sinceramente por los demás.
+### Regla 1. Interésese sinceramente por los demás.
 
 >_Nos interesan los demás cuando se interesan por nosotros. -Publilio Syro_
 
@@ -130,7 +137,7 @@ Thurston, el decano de los magos, mostraba verdadero interés por el público, c
 Si queremos obtener amigos, dediquémonos a hacer cosas para los demás, cosas que requieren tiempo, energía, altruismo.
 
 
-### REGLA 2. Sonría
+### Regla 2. Sonría
 
 >_Nada es bueno o malo, sino que el pensamiento es lo que hace que las cosas sean buenas o malas. -Shakespeare_ 
 
@@ -158,14 +165,14 @@ Cada vez que salga al aire libre, retraiga el mentón, lleve ergida la cabeza y 
 Su sonrisa es una mensajera de bondad. Su sonrisa ilumnina la vida de aquellos que la ven. 
 
 
-### REGLA 3. Recuerde que para toda persona, su nombre es el sonido más dulce e importante en cualquier idioma.
+### Regla 3. Recuerde que para toda persona, su nombre es el sonido más dulce e importante en cualquier idioma.
 
 
-### REGLA 4. Sea un buen oyente. Anime a los demás a que hablen de sí mismos.
+### Regla 4. Sea un buen oyente. Anime a los demás a que hablen de sí mismos.
 
 
-### REGLA 5. Hable siempre de lo que interese a los demás.
+### Regla 5. Hable siempre de lo que interese a los demás.
 
 
-### REGLA 6. Haga que la otra persona se sienta importante y hágalo sinceramente.
+### Regla 6. Haga que la otra persona se sienta importante y hágalo sinceramente.
 
