@@ -1,6 +1,14 @@
 # Resumen de Cómo ganar amigos e influir sobre las personas 
  >  Dale Carnegie 
 
+## Contenido
+
+- [Primera parte. Técnicas fundamentales para tratar con el prójimo](#primera-parte-técnicas-fundamentales-para-tratar-con-el-prójimo)
+- [Regla 1. No critique, no condene, ni se queje](#regla-1-no-critique-no-condene-ni-se-queje)
+- [Regla 2. Demuestre aprecio honrado y sincero](#regla-2-demuestre-aprecio-honrado-y-sincero)
+- [Regla 3. Despierte en los demás un deseo vehemente](#regla-3-despierte-en-los-demás-un-deseo-vehemente)
+
+
 ## Primera parte. Técnicas fundamentales para tratar con el prójimo.
 
 ### Regla 1. No critique, no condene, ni se queje
@@ -78,7 +86,26 @@ Una de las virtudes más descuidadas de nuestra existencia cotidiana es la aprec
 
 ### Regla 3. Despierte en los demás un deseo vehemente.
 
+#### Frases
+
+>_Quien puede hacer esto tiene al mundo entero consigo; quien no puede, marcha solo por el caminio._
+
+>_Si hay un secreto del éxito reside en la capacidad para apreciaar el punto de vista del prójimo y ver las cosas desde ese punto de vista así como del propio. -Henry Ford_
+
+>_El hombre que se puede poner en el lugar de los demás, que puede comprender el funcionamiento de la mente ajena, no tiene por qué preocuparse por el futuro. -Owen D. Young_
 
 
+#### Razonamientos
 
+¿Por qué hablar de lo que necesitamos o deseamos? Eso es infantil. Absurdo.
+Pero a nadie más le interesa. Los demás son como usted o como yo: les interesa lo que ellos desean o necesitan.
+
+De modo que el único medio de que disponemos para influir sobre el prójimo es hablar acerca de lo que él quiere, y demostrarle cómo conseguirlo.
+
+Mañana querrá usted persuadir a alguien de que haga algo. Antes de hablar, haga una pausa y pregúntese: "¿Cómo puedo lograr que quiera hacerlo?".
+
+El mundo está lleno de personas egoístas, aprovechadoras. De manera que los pocos individuos que sin egoísmo tratan de servir a los demás tienen enormes ventajas.
+
+Ver desde el punto de vista de la otra persona, y despertar en esa persona un deseo ferviente de algo, no debe confundirse con manipular a esa personade modo
+que haga algo en detrimento de sus propios intereses. Ambos partidos deben salir ganando en la negociación.
 
