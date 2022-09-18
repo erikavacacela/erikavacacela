@@ -1,9 +1,11 @@
 # Resumen de Cómo ganar amigos e influir sobre las personas 
  >  Dale Carnegie 
 
-## Regla 1. No critique, no condene, ni se queje
+## Primera parte. Técnicas fundamentales para tratar con el prójimo.
 
-### Frases
+### Regla 1. No critique, no condene, ni se queje
+
+#### Frases
 > _Si quieres recoger miel, no des puntapiés a la colmena._
 
 > _Es una tontería regañar a los demás, bastante tengo con mis propias limitaciones._
@@ -15,7 +17,7 @@
 > _No hablaré mal de hombre alguno y de todos diré todo lo bueno que sepa. -Benjamin Franklin_
 
 
-### Razonamientos
+#### Razonamientos
 
 La crítica es peligrosa, porque lastima el orgullo, tan precioso de la persona, hiere su sentido de la importancia, y despierta su resentimiento.
 
@@ -31,9 +33,9 @@ En lugar de sensurar a la gente, tratemos de comprenderla. Tratemos de imaginarn
 Eso es mucho más provechoso y más interesante que la crítica; y de ello surge la simpatía, la tolerancia y la bondad.
 Saberlo todo es perdonarlo todo.
 
-## Regla 2. Demuestre aprecio honrado y sincero
+### Regla 2. Demuestre aprecio honrado y sincero
 
-### Frases
+#### Frases
 
 > _El impulso más profundo de la naturaleza humana es "el deseo de ser importante". -Dr. John Dewey_
 
@@ -51,7 +53,7 @@ Saberlo todo es perdonarlo todo.
 
 >_Todo hombre que conozco es superior a mí en algún sentido. En ese sentido, aprendo de él. -Emerson_
 
-### Razonamientos
+#### Razonamientos
 Sólo hay un medio para conseguir que alguien haga algo. Y es de hacer que el prójimo ***quiera*** hacerlo.
 
 Hace unos años se hizo un estudio sociológico entre esposas que habían abandonado sus hogares, 
@@ -72,6 +74,11 @@ Si dejamos de pensar en nosotros mismos por un rato y comenzamos a pensar en las
 tan barata y tan falsa que se la conoce apenas sale de los labios.
 
 Una de las virtudes más descuidadas de nuestra existencia cotidiana es la apreciación.
+
+
+### Regla 3. Despierte en los demás un deseo vehemente.
+
+
 
 
 
