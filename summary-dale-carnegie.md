@@ -132,6 +132,31 @@ Si queremos obtener amigos, dediquémonos a hacer cosas para los demás, cosas q
 
 ### REGLA 2. Sonría
 
+>_Nada es bueno o malo, sino que el pensamiento es lo que hace que las cosas sean buenas o malas. -Shakespeare_ 
+
+>_Casi todas las personas son tan felices como deciden serlo. -Abraham Lincoln._
+
+>_Pensar bien es crear_
+
+>_El hombre cuya cara no sonríe no debe abrir una tienda. -Proverbio Chino_
+
+#### Razonamientos
+
+Una manera sencilla de causar una buena primera impresión. --> Sonría.
+
+Las acciones dicen más que las palabras, y una sonrisa expresa: "Me gusta usted. Me causa felicidad. Me alegro tanto de verlo".
+
+¿Una sonrisa poco sincera? No. A nadie engañaremos. Sabemos que es una cosa mecánica y nos causa enojo. Hablo de una verdadera sonrisa, que alegre el corazón, que venga de adentro, que valga buen precio en el mercado.
+
+William James lo expresó de la siguiente manera: La acción parece seguir al sentimiento, pero en realidad la acción y el sentimiento van juntos; y si se regula la acción, que está bajo el control más directo de la voluntad, podemos regular el sentimiento, que no lo está. 
+De tal manera, el camino voluntario y soberano hacia la alegría, actuar y hablar con alegría, como si esa alegría estuviera ya con nosotros.
+
+Todo el mundo busca la felicidad, y hay un medio seguro para encontrarla. Consiste en controlar nuestros pensamientos. La felicidad no depende de condiciones externas, depende de condiciones internas. No es lo que tenemos o lo que somos o donde estamos o lo que realizamos, nada de eso, lo que nos hace felices o desgraciados. Es lo que pensamos acerca de ello.
+
+Cada vez que salga al aire libre, retraiga el mentón, lleve ergida la cabeza y llene los pulmones hasta que no pueda más; beba el sol; salude a sus amigos con una sonrisa, y ponga el alma en cada apretrón de manos.
+
+Su sonrisa es una mensajera de bondad. Su sonrisa ilumnina la vida de aquellos que la ven. 
+
 
 ### REGLA 3. Recuerde que para toda persona, su nombre es el sonido más dulce e importante en cualquier idioma.
 
