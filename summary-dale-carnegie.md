@@ -3,7 +3,7 @@
 
 ## Contenido
 
-- [Primera parte. Técnicas fundamentales para tratar con el prójimo](#primera-parte-técnicas-fundamentales-para-tratar-con-el-prójimo)
+[Primera parte. Técnicas fundamentales para tratar con el prójimo](#primera-parte-técnicas-fundamentales-para-tratar-con-el-prójimo)
 - [Regla 1. No critique, no condene, ni se queje](#regla-1-no-critique-no-condene-ni-se-queje)
 - [Regla 2. Demuestre aprecio honrado y sincero](#regla-2-demuestre-aprecio-honrado-y-sincero)
 - [Regla 3. Despierte en los demás un deseo vehemente](#regla-3-despierte-en-los-demás-un-deseo-vehemente)
@@ -108,4 +108,39 @@ El mundo está lleno de personas egoístas, aprovechadoras. De manera que los po
 
 Ver desde el punto de vista de la otra persona, y despertar en esa persona un deseo ferviente de algo, no debe confundirse con manipular a esa personade modo
 que haga algo en detrimento de sus propios intereses. Ambos partidos deben salir ganando en la negociación.
+
+
+
+## Segunda parte. Seis maneras de agradar a los demás.
+
+
+### REGLA 1. Interésese sinceramente por los demás.
+
+>_Nos interesan los demás cuando se interesan por nosotros. -Publilio Syro_
+
+#### Razonamientos
+
+Se pueden ganar más amigos en dos meses si se interesa uno en los demás, que los que se ganarían en dos años si se hace que los demás se interesen por uno.
+
+El individuo que no se interesa por sus semejantes es quien tiene las mayores dificultades en la vida y causa las mayores heridas a los demás.
+De esos individuos surgen todos los fracasos humanos.
+
+Thurston, el decano de los magos, mostraba verdadero interés por el público, cada vez que entraba al escenario se decía: "Estoy agradecido a toda esta gente que ha venido a verme. Son ellos quienres me permiten ganarme la vide en forma tan agradable. Por ellos haré esta noche todo lo mejor que pueda".
+
+Si queremos obtener amigos, dediquémonos a hacer cosas para los demás, cosas que requieren tiempo, energía, altruismo.
+
+
+### REGLA 2. Sonría
+
+
+### REGLA 3. Recuerde que para toda persona, su nombre es el sonido más dulce e importante en cualquier idioma.
+
+
+### REGLA 4. Sea un buen oyente. Anime a los demás a que hablen de sí mismos.
+
+
+### REGLA 5. Hable siempre de lo que interese a los demás.
+
+
+### REGLA 6. Haga que la otra persona se sienta importante y hágalo sinceramente.
 
