@@ -168,6 +168,11 @@ Su sonrisa es una mensajera de bondad. Su sonrisa ilumnina la vida de aquellos q
 
 ### Regla 3. Recuerde que para toda persona, su nombre es el sonido más dulce e importante en cualquier idioma.
 
+#### Razonamientos
+
+Jim Farley descubrió al principio de su vida que el común de los hombres se interesa más por su propio nombre que por todos los demás de la tierra.
+
+Franklin D. Roosevelent sabia que uno de los medios más sencillos, más evidentes y más importantes para conquistar buena voluntad es el de recordar nombres y hacer que los demás se sientan importantes.
 
 ### Regla 4. Sea un buen oyente. Anime a los demás a que hablen de sí mismos.
 
