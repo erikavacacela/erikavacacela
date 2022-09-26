@@ -176,6 +176,15 @@ Franklin D. Roosevelent sabia que uno de los medios más sencillos, más evident
 
 ### Regla 4. Sea un buen oyente. Anime a los demás a que hablen de sí mismos.
 
+Fácil manera de convertirse en un buen conversador.
+
+Escuchar con atención es uno de los más altos cumplimientos que se puede rendir...
+Muchas personas noa logran causar una impresión favorable porque no escuchan con atención. "Están tan preocupados por lo que van a decir, que no escuchan nada... Hombres famosos me han dicho que prefieren buenos oyentes a buenos conversadores, pero que la habilidad para escuchar parece más rara que cualquier otra cualidad humana."
+
+Si quiere usted que la gente lo eluda y se ría de usted apenas le vuelve la espalda, y hasta lo desprecie, aquí la receta: jamás escucha mientras hablen los demás. Hable incesantemente de usted mismo. Si se le ocurre una idea cuando su interlocutor está hablando, no lo deje terminar. No es tan vivo como usted. ¿Por qué ha de perder el tiempo escuchando su estúpida charla? Interrúmpalo en medio de una frase.
+
+Si aspira usted a ser un buen conversador, sea un oyente atento. Para ser interesante, hay que interesarse. Pregunte cosas que su interlocutor se complacerá en responder. Aliéntelo a hablar de sí mismo y de sus experiencias.
+
 
 ### Regla 5. Hable siempre de lo que interese a los demás.
 
