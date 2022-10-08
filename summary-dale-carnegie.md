@@ -32,8 +32,6 @@
 
 > _No hablaré mal de hombre alguno y de todos diré todo lo bueno que sepa. -Benjamin Franklin_
 
->_Hábleles a las personas de ellas mismas, y lo escucharán por horas. -Disraeli (uno de los hombres más astutos que han gobernado el Imperio Británico)_
-
 
 #### Razonamientos
 
@@ -202,6 +200,8 @@ Frases insignificantes, como "Lamento molestarlo", "Tendría usted la bondad de.
 >_El principio más profundo en el carácter humano es el anhelo de ser apreciaado. William James_
 
 >_Haz al prójimo lo que quierass que el prójimo te haga a ti_
+
+>_Hábleles a las personas de ellas mismas, y lo escucharán por horas. -Disraeli (uno de los hombres más astutos que han gobernado el Imperio Británico)_
 
 
 
