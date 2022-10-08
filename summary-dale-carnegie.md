@@ -187,7 +187,19 @@ Si aspira usted a ser un buen conversador, sea un oyente atento. Para ser intere
 
 
 ### Regla 5. Hable siempre de lo que interese a los demás.
-
+Interésese por los temas que a los demás les interesa, aquello que despierta su estusiasmo.
+Hablar en términos de los intereses de la otra persona es beneficioso para las dos partes.
 
 ### Regla 6. Haga que la otra persona se sienta importante y hágalo sinceramente.
+Si somos tan despreciables, por egoístas, que no podemos irradiar algo de felicidad y rendir un elogio honrado, sin tratar de obtener algo a cambio; si nuestras almas son de tal pequeñez, iremos al fracaso, a un fracaso merecido.
+
+Hay una ley de suma importancia en la conducta humana. Si la obedecemos, obtendremos incontables amigos y constante felicidad: Trate siempre de que la persona se sienta importante.
+
+Frases insignificantes, como "Lamento molestarlo", "Tendría usted la bondad de...", "Quiere hacer el favor de...", "Tendría usted la gentileza" o "Gracias"; porqueñas cortesías como éstas sirven para aceitar las ruedas del monótono mecanismo de la vida diaria y, de paso, son la seña de la buena educación.
+
+>_El principio más profundo en el carácter humano es el anhelo de ser apreciaado. William James_
+
+>_Haz al prójimo lo que quierass que el prójimo te haga a ti_
+
+
 
