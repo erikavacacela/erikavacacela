@@ -32,6 +32,8 @@
 
 > _No hablaré mal de hombre alguno y de todos diré todo lo bueno que sepa. -Benjamin Franklin_
 
+>_Hábleles a las personas de ellas mismas, y lo escucharán por horas. -Disraeli (uno de los hombres más astutos que han gobernado el Imperio Británico)_
+
 
 #### Razonamientos
 
